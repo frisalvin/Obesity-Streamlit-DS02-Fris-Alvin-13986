@@ -1,0 +1,7 @@
+![tuning](https://github.com/user-attachments/assets/bf84355e-e58b-4bf5-8931-2b7b8f63c390)
+![dg preproces](https://github.com/user-attachments/assets/89338eb5-b4c0-4a5a-9e8d-df5e917e640c)
+![tanpa apa apa](https://github.com/user-attachments/assets/afc4996f-8320-4859-98dd-21a1fa2d1271)
+![preproces](https://github.com/user-attachments/assets/ead1aa30-4dc5-4957-ab4d-ef12f3d3d5a2)
+![teks klasifikasi](https://github.com/user-attachments/assets/30c9e656-17dc-43f1-94f8-862c88182f67)
+![eda](https://github.com/user-attachments/assets/b997abaf-15c4-458b-8b90-050a238bb4b9)
+![kesimpulan akhir](https://github.com/user-attachments/assets/ae7fcb70-164d-4c35-967b-cf9ce7ba1635)
